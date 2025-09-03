@@ -12,7 +12,7 @@
 - 📫 How to reach me **fletcher.nathan683@gmail.com**
 
 
-I am from Valley Nebraska and I now live in Wayne Nebraska where I study at college. I love to play sports, be involved in my local church, play and make music, and travel around the world. I am the president of CRU, a college ministry organization at Wayne State College, where I loved to work with others to make the organization successgful to the best of its ability. In my future, I hope to work for government agencies where I can use knowledge aquired from Wayne State College.  
+I am from Valley Nebraska and I now live in Wayne Nebraska where I study at college. I love to play sports, be involved in my local church, play and make music, and travel around the world. I am the president of CRU, a college ministry organization at Wayne State College, where I love to serve and work with others for the betterment of the organization. In my future, I hope to work for a government agency where I can use knowledge aquired from Wayne State College and my personal research. 
 
 ### Education
 
