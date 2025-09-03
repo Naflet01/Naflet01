@@ -9,8 +9,6 @@
 
 - 👨🏻‍💻 I love learning how I can use constant advancements in technology to compliment my work in the geospatial technology field
 
-- 🧠 I like to learn something new
-
 - 📫 How to reach me **fletcher.nathan683@gmail.com**
 
 
